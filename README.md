@@ -31,3 +31,13 @@ Un peu d'enfer, le Connemara
 Des nuages noirs qui viennent du nord
 Colorent la terre, les lacs, les rivières
 C'est le décor du Connemara
+
+
+Au printemps suivant, le ciel irlandais était en paix
+Maureen a plongé nue dans un lac du Connemara
+Sean Kelly s'est dit 'je suis catholique', Maureen aussi
+L'église en granit de Limerick, Maureen a dit oui
+De Tipperary, Barry-Connely et de Galway
+Ils sont arrivés dans le comté du Connemara
+Y'avait les Connors, les O'Connolly, les Flaherty du Ring of Kerry
+Et de quoi boire trois jours et deux nuits
