@@ -11,3 +11,11 @@ Oh là là
 Mon cœur danse la macarena, la la la la la la la la la la
 Oh là là
 Mon cœur danse la macarena, la la la la la la la la la la
+
+Un deux trois
+  Trois p'tits chats
+  Trois vilains petits fripons
+  L'autre nuit  
+Sans un bruit  
+Sont entrés dans la maison.
+
