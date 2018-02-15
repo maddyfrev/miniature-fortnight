@@ -22,3 +22,12 @@ Un deux trois
 Sans un bruit  
 Sont entrés dans la maison.
 
+
+
+Terre brûlée au vent
+Des landes de pierres
+Autour des lacs, c'est pour les vivants
+Un peu d'enfer, le Connemara
+Des nuages noirs qui viennent du nord
+Colorent la terre, les lacs, les rivières
+C'est le décor du Connemara
