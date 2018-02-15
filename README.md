@@ -22,3 +22,20 @@ Un deux trois
 Sans un bruit  
 Sont entrés dans la maison.
 
+
+Basique, simple, simple, basique 
+Basique, simple, simple, basique 
+Vous n'avez pas les bases, vous n'avez pas les bases 
+Vous n'avez pas les bases, vous n'avez pas les bases 
+
+
+Toujours vivant, rassurez vous 
+Toujours la banane toujours debout 
+J'suis retapé, remis sur pieds 
+Droit sur mes guibolles ressuscité 
+Tous ceux qui tombent autour de moi 
+C'est l'hécatombe, c'est Guernica 
+Tous ceux qui tombent, tombent à tour de bras 
+Et moi je suis toujours là 
+
+Hey 
