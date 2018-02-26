@@ -22,6 +22,7 @@ Un deux trois
 Sans un bruit  
 Sont entrés dans la maison.
 
+<<<<<<< HEAD
 koukou
 Terre brûlée au vent
 Des landes de pierres
@@ -40,3 +41,22 @@ De Tipperary, Barry-Connely et de Galway
 Ils sont arrivés dans le comté du Connemara
 Y'avait les Connors, les O'Connolly, les Flaherty du Ring of Kerry
 Et de quoi boire trois jours et deux nuits
+=======
+
+Basique, simple, simple, basique 
+Basique, simple, simple, basique 
+Vous n'avez pas les bases, vous n'avez pas les bases 
+Vous n'avez pas les bases, vous n'avez pas les bases 
+
+g
+Toujours vivant, rassurez vous 
+Toujours la banane toujours debout 
+J'suis retapé, remis sur pieds 
+Droit sur mes guibolles ressuscité 
+Tous ceux qui tombent autour de moi 
+C'est l'hécatombe, c'est Guernica 
+Tous ceux qui tombent, tombent à tour de bras 
+Et moi je suis toujours là 
+
+Hey 
+>>>>>>> 948efef6d9db594789863119c5ac0657a32f95ad
