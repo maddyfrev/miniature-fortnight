@@ -22,8 +22,7 @@ Un deux trois
 Sans un bruit  
 Sont entrés dans la maison.
 
-
-
+koukou
 Terre brûlée au vent
 Des landes de pierres
 Autour des lacs, c'est pour les vivants
